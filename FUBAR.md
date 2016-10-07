@@ -10,6 +10,7 @@ Ted and Alice are working on their sections right now. Ted likes to refer to him
 
 I AMMM THE GIMP!!
 This is craziness, yo.
+THIRD TIME'S THE CHARM -Carol
 
 
 Minas Morgul, home of Shelob.
