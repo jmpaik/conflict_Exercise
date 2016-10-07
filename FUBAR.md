@@ -11,3 +11,5 @@ Ted and Alice are working on their sections right now. Ted likes to refer to him
 I AMMM THE GIMP!!
 This is craziness, yo.
 I don't like playin this game.
+
+To make this even more confusing Bob is now Carol which makes Carol hot and bothered too.
