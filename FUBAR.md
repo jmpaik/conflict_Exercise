@@ -10,6 +10,7 @@ Ted and Alice are working on their sections right now. Ted likes to refer to him
 
 I AMMM THE GIMP!!
 This is craziness, yo.
+THIRD TIME'S THE CHARM -Carol
 
 
 Minas Morgul, home of Shelob.
@@ -20,8 +21,11 @@ To make this even more confusing Bob is now Carol which makes Carol hot and both
 
 
 This is the worst. I hate my life. I need a cherry flavored Starburst.
-=======
+
 
 I am in the master branch more typos.
 
+
 This is a newerer line of code.
+
+ABCDEFGHIJKLMNOPQRSTUVWXYZ... Ladies and Gentlmen, the Alphabet.
