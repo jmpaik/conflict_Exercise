@@ -12,3 +12,6 @@ I AMMM THE GIMP!!
 This is craziness, yo.
 
 To make this even more confusing Bob is now Carol which makes Carol hot and bothered too.
+
+
+I am in the master branch more typos.
