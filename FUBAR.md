@@ -18,4 +18,8 @@ I don't like playin this game.
 
 To make this even more confusing Bob is now Carol which makes Carol hot and bothered too.
 
+
 This is the worst. I hate my life. I need a cherry flavored Starburst.
+=======
+
+I am in the master branch more typos.
